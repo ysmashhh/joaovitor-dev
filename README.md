@@ -15,4 +15,4 @@ Projetos em Destaque
 
 Contato
 - [LinkedIn](www.linkedin.com/in/joão-vitor-dias-2b7317368)
-- [E-mail] joaovitordias2015@gmail.com
+- E-mail: joaovitordias2015@gmail.com
